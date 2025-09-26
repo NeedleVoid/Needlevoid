@@ -1,9 +1,11 @@
-## Hi there 👋
+## Hiya!
 
-<!--
-**NeedleVoid/Needlevoid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm Clover (or Soda if you like) and I'm currently playing often right now on PT
 
-Here are some ideas to get you started:
+Just a  small note, if I blocked you or hid you it's probably because either:
+a) you made me uncomfortable
+b) or we had some issue and just 
+
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
