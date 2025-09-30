@@ -2,9 +2,9 @@
 
 I'm Clover (or Soda if you like) and I'm currently playing often right now on PT
 
-Just a  small note, if I blocked you or hid you it's probably because either:
+Just a  small note, if I blocked your invites or hid you it's probably because either:
 a) you made me uncomfortable
-b) or we had some issue and just 
+b) or we both had issues
 
 
 - 🔭 I’m currently working on ...
