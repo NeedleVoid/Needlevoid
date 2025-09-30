@@ -16,7 +16,7 @@ b) or we both had issues
 Also pls DO NOT INVITE ME TO FRIENDS if you under 18 years old. I might compliment your character you made from Pony Town not knowing your age so it's all good, but I don't wanna have minors in my friend list for obvious reasons.
 
 
-
+        -----------------------------------------------------------------------------------------------------------------------------------------------------
 
 
 ☆ Pronouns: she/her, but he/him is fine too
