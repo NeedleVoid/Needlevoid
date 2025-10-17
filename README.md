@@ -18,6 +18,7 @@ Also pls DO NOT INVITE ME TO FRIENDS if you under 18 years old. I might complime
 
 DNI:
 
+- Homophobes, Racists
 - DSMP fandom (if you have old skin it's fine, I just don't vibe good with these ppl who I met from this fandom);
 - Stoliz shippers (Hellverse in general, but I like fans who cosplay characters, but that's pretty much it);
 - People who copying my skins (ask for inspo alright?);
