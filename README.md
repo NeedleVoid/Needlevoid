@@ -30,6 +30,8 @@ DNI:
  --------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 ☆ Pronouns: she/her, but he/him is fine too
+
+☆ My English isn't good because it's not my first language so please keep that in mind
  
 ☆ I like playing Minecraft, Stardew Valley, Uma Musume (sometimes) and Madoka Magica Exedra (I play few other games, but my laptop is a little laggy, currently collecting for gaming pc)
  
