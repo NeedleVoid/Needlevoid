@@ -57,3 +57,11 @@ I think that's all...I prob add something when I have free time or remember some
 
 ![a7d2c0f58e6c9b1b5db9416c44cb79e2732f0fb7_hq-ezgif com-crop](https://github.com/user-attachments/assets/a15e8752-bd8d-4ca9-83b1-f3d4e1407f54)
 
+
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jqlz5qvba6u3jw25hxdp2afasq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=e12323">
+  </a>
+</p>
+
