@@ -21,7 +21,7 @@ DNI:
 - Homophobes, Racists, Proshippers, Zoophiles etc.;
 - DSMP fandom (if you have old skin it's fine, I just don't vibe good with these ppl who I met from this fandom);
 - People who are upsetting my friends
-- Stoliz shippers (Hellverse in general, but I like fans who cosplay characters, but that's pretty much it);
+- Stoliz shippers (Hellverse in general, but I like fans who cosplay characters, but that's pretty much it, idm tho my close friends);
 - People who copying my skins (ask for inspo alright?);
 - Ragebaiters (I think this is obvious reason, but I can laugh off some stuff);
 - AI "artists"/supporters;
