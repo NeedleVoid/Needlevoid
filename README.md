@@ -27,6 +27,15 @@ DNI:
 - 16 yo's and lower;
 - People who bother me when I'm currently having DNI (I often do that or seperate myself usually, often I put my ponies who have DNI so you will know if something that I have DNI or I just kindly ask you to leave. I'm usually trying to find some seperate place from people tho);
 - People who cover me or bother non stop (I first kindly ask if something or just move, but if you keep doing it then yeah 🤷;
+
+
+
+Stuff I'm into so far:
+
+- TADC
+- Smiling Friends
+- Madoka Magica
+- Ena
  --------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 ☆ Pronouns: she/her, but he/him is fine too
