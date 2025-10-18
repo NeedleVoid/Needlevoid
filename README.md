@@ -18,14 +18,14 @@ Also pls DO NOT INVITE ME TO FRIENDS if you under 18 years old. I might complime
 
 DNI:
 
-- Homophobes, Racists, Proshippers etc.
+- Homophobes, Racists, Proshippers etc.;
 - DSMP fandom (if you have old skin it's fine, I just don't vibe good with these ppl who I met from this fandom);
 - Stoliz shippers (Hellverse in general, but I like fans who cosplay characters, but that's pretty much it);
 - People who copying my skins (ask for inspo alright?);
 - Ragebaiters (I think this is obvious reason, but I can laugh off some stuff);
 - AI "artists"/supporters;
 - 16 yo's and lower;
-- People who bother me when I'm currently having DNI (I often do that, or seperate myself usually, often I put my ponies, who have DNI so you will know if something that I have DNI or I just kindly ask you to leave. I'm usually trying to find some seperate place from people tho);
+- People who bother me when I'm currently having DNI (I often do that or seperate myself usually, often I put my ponies who have DNI so you will know if something that I have DNI or I just kindly ask you to leave. I'm usually trying to find some seperate place from people tho);
 - People who cover me or bother non stop (I first kindly ask if something or just move, but if you keep doing it then yeah 🤷;
  --------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
