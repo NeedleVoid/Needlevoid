@@ -2,8 +2,6 @@
 
 I'm Clover (or Soda if you like) and I'm currently playing often right now on PT
 
-![16af38802de2e1204de081ca851142aa](https://github.com/user-attachments/assets/85ad5a6e-b3aa-4cb9-a712-9429304e9eb7)
-
 
 Just a  small note, if I blocked your invites or hid you it's probably because either:
 
@@ -20,7 +18,6 @@ DNI:
 
 - Homophobes, Racists, Proshippers, Zoophiles etc.;
 - DSMP fandom (if you have old skin it's fine, I just don't vibe good with these ppl who I met from this fandom);
-- People who are upsetting my friends
 - Stoliz shippers (Hellverse in general, but I like fans who cosplay characters, but that's pretty much it, idm tho my close friends);
 - People who copying my skins (ask for inspo alright?);
 - Ragebaiters (I think this is obvious reason, but I can laugh off some stuff);
