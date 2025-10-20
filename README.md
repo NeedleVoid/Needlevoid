@@ -11,7 +11,7 @@ b) or we both had issues
 
 
 
-Also pls DO NOT INVITE ME TO FRIENDS if you under 18 years old. I might compliment your character you made from Pony Town not knowing your age so it's all good, but I don't wanna have minors in my friend list for obvious reasons.
+Also pls DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with.
 
 
 DNI:
@@ -46,8 +46,6 @@ Stuff I'm into so far:
 ☆ I like also listening to music, any types really (I hate Disco Polo, but somehow I like few songs from this type lol)
 
 ☆ I love drawing sometimes (even if I'm not artist tbh), read books, collecting keychains and LPS, trying also rn do cosplay (but I'm not doing everything from scratch because I'm not that talented sadly ;-;)
-
-☆ I'm not giving my discord to random people, even if I have many profiles linked on my straw
 
 
 I think that's all...I prob add something when I have free time or remember something. Cya
