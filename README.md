@@ -29,7 +29,7 @@ DNI:
 - AI "artists"/supporters;
 - 15 yo's and lower;
 - People who bother me when I'm currently having DNI (I often do that or seperate myself usually, often I put my ponies who have DNI so you will know if something that I have DNI or I just kindly ask you to leave. I'm usually trying to find some seperate place from people tho);
-- People who cover me or bother non stop (I first kindly ask if something or just move, but if you keep doing it then yeah 🤷);
+- People who cover me non stop (I first kindly ask if something or just move, but if you keep doing it then yeah 🤷);
   
 
   (This isn't necessary DNI, but I don't like talking about my past relationships so keep in mind I probably will back away in any type of mentions of relationships, even if they aren't related to me)
