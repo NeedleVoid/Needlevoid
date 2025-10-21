@@ -27,9 +27,12 @@ DNI:
 - People who copying my skins (ask for inspo alright?);
 - Ragebaiters (I think this is obvious reason, but I can laugh off some stuff);
 - AI "artists"/supporters;
-- 16 yo's and lower;
+- 15 yo's and lower;
 - People who bother me when I'm currently having DNI (I often do that or seperate myself usually, often I put my ponies who have DNI so you will know if something that I have DNI or I just kindly ask you to leave. I'm usually trying to find some seperate place from people tho);
 - People who cover me or bother non stop (I first kindly ask if something or just move, but if you keep doing it then yeah 🤷);
+  
+
+  (This isn't necessary DNI, but I don't like talking about past relationships so keep in mind I probably will back away in any type of mentions of them, even if they aren't related to me)
 
 
 
