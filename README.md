@@ -32,7 +32,7 @@ DNI:
 - People who cover me or bother non stop (I first kindly ask if something or just move, but if you keep doing it then yeah 🤷);
   
 
-  (This isn't necessary DNI, but I don't like talking about past relationships so keep in mind I probably will back away in any type of mentions of them, even if they aren't related to me)
+  (This isn't necessary DNI, but I don't like talking about my past relationships so keep in mind I probably will back away in any type of mentions of relationships, even if they aren't related to me)
 
 
 
@@ -42,7 +42,7 @@ Stuff I'm into so far:
 - Smiling Friends
 - Madoka Magica
 - Ena
-  There's also few other stuff I'm into so feel free to ask
+- There's also few other stuff I'm into so feel free to ask
  --------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 ☆ Pronouns: she/her, but he/him is fine too
