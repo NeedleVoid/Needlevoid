@@ -1,5 +1,10 @@
 ## Hiya!
 
+
+![dc8601df47905cee8ee33047a749f394](https://github.com/user-attachments/assets/441a18b0-1106-4c23-b652-55948106796b)
+
+
+
 I'm Clover (or Soda if you like) and I'm currently playing often right now on PT
 
 
@@ -11,7 +16,7 @@ b) or we both had issues
 
 
 
-Also pls DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with.
+Also pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with anyways, but ye.
 
 
 DNI:
