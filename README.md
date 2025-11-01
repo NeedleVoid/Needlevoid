@@ -51,6 +51,8 @@ Stuff I'm into so far:
 ☆ Where I sit on PT? Well depends, usually I sit in Glitch Area in Safe Server #1, sometimes close to spawn in 18+ or somewhere close to UT/DR fandom, sometimes also in Safe Server 2 I'm sitting close to spawn or under spawn on bench;
  
 ☆ I like playing Minecraft, Stardew Valley, Uma Musume (sometimes) and Madoka Magica Exedra (I play few other games, but my laptop is a little laggy, currently collecting for gaming pc);
+
+☆ So far I'm not into any serious RP, I can play a little, but if anyone would ask I'm not comfy to do it for now;
  
 ☆ I like also listening to music, any types really (I hate Disco Polo, but somehow I like few songs from this type lol);
 
