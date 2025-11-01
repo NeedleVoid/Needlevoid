@@ -44,15 +44,17 @@ Stuff I'm into so far:
 - There's also few other stuff I'm into so feel free to ask
  --------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-☆ Pronouns: she/her, but he/him is fine too
+☆ Pronouns: she/her, but he/him is fine too;
 
-☆ My English isn't good because it's not my first language so please keep that in mind
- 
-☆ I like playing Minecraft, Stardew Valley, Uma Musume (sometimes) and Madoka Magica Exedra (I play few other games, but my laptop is a little laggy, currently collecting for gaming pc)
- 
-☆ I like also listening to music, any types really (I hate Disco Polo, but somehow I like few songs from this type lol)
+☆ My English isn't good because it's not my first language so please keep that in mind;
 
-☆ I love drawing sometimes (even if I'm not artist tbh), read books, collecting keychains and LPS, trying also rn do cosplay (but I'm not doing everything from scratch because I'm not that talented sadly ;-;)
+☆ Where I sit on PT? Well depends, usually I sit in Glitch area in Server 1, sometimes close to lobby in 18+ or somewhere close to UT/DR fandom, sometimes also in Safe Server 2 I'm sitting close to lobby;
+ 
+☆ I like playing Minecraft, Stardew Valley, Uma Musume (sometimes) and Madoka Magica Exedra (I play few other games, but my laptop is a little laggy, currently collecting for gaming pc);
+ 
+☆ I like also listening to music, any types really (I hate Disco Polo, but somehow I like few songs from this type lol);
+
+☆ I love drawing sometimes (even if I'm not artist tbh), read books, collecting keychains and LPS, trying also rn do cosplay (but I'm not doing everything from scratch because I'm not that talented sadly ;-;);
 
 
 I think that's all...I prob add something when I have free time or remember something. Cya
