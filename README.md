@@ -16,7 +16,7 @@ b) or we both had issues
 
 
 
-Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with anyways. Also if you are someone from people who I don't much like being around srry, but might take for you to longer to me to talk to you.
+Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with anyways. Also if you are friends with someone from people who I don't much like being around srry, but might take for you to longer to me to talk to you.
 
 DNI:
 
