@@ -14,7 +14,7 @@ a) you made me uncomfortable
 
 b) or we both had issues
 
-c) I sometimes want to, (but it usually means you are close to someone, who I had issues with)
+c) I sometimes want to
 
 
 
