@@ -14,6 +14,8 @@ a) you made me uncomfortable
 
 b) or we both had issues
 
+c) I sometimes want to, (but it usually means you are close to someone, who I had issues with)
+
 
 
 Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with anyways. Also if you are friends with someone from people who I don't much like being around then sorry, but might take for you to longer to me to talk to you.
