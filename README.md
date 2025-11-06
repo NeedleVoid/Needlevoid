@@ -20,7 +20,7 @@ d) or you were weird to my friends
 
 
 
-Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with anyways. Also if you are friends with someone from people who I don't much like being around then sorry, but might take for you to longer to me to talk to you.
+Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with anyways. Also don't add me if your interaction with me just gonna be basically two convos and you later will forget who am I, or I just kick you out from my friend list.
 
 DNI:
 
