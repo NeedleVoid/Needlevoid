@@ -16,6 +16,8 @@ b) or we both had issues
 
 c) I sometimes want to
 
+d) or you were weird to my friends
+
 
 
 Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with anyways. Also if you are friends with someone from people who I don't much like being around then sorry, but might take for you to longer to me to talk to you.
