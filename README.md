@@ -5,7 +5,7 @@
 
 
 
-I'm Clover (or Soda if you like) and I'm currently playing often right now on PT
+I'm Clover (or Soda if you like) and I'm sometimes playing PT.
 
 
 Just a  small note, if I blocked your invites or hid you it's probably because either:
@@ -15,8 +15,6 @@ a) you made me uncomfortable
 b) or we both had issues
 
 c) I sometimes want to
-
-d) or you were weird to my friends
 
 
 
@@ -37,13 +35,10 @@ DNI:
 
   (This isn't necessary DNI, but I don't like talking about my past relationships so keep in mind I probably will back away in any type of mentions of relationships, even if they aren't related to me)
 
-  (Another thing is...DON'T ask me about supporter if I don't know you. Sorry but no.)
-
 
 
 Stuff I'm into so far:
 
-- TADC
 - Smiling Friends
 - Madoka Magica
 - Ena
