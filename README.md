@@ -54,7 +54,7 @@ Stuff I'm into so far:
 
 ☆ My English isn't good because it's not my first language so please keep that in mind;
 
-☆ Where I sit on PT? Well depends, usually I sit in Glitch Area in Safe Server #1, sometimes close to spawn in 18+ or somewhere close to UT/DR fandom, sometimes also in Safe Server 2 I'm sitting close to spawn or under spawn on bench;
+☆ Where I sit on PT? Depends, but I don't sit on Safe Server #1 anymore. Sometimes close to spawn in 18+, sometimes also in Safe Server 2 I'm sitting close to spawn, under spawn on bench or somewhere under trees near paths idek;
  
 ☆ I like playing Minecraft, Stardew Valley, Uma Musume (sometimes) and Madoka Magica Exedra (I play few other games, but my laptop is a little laggy, currently collecting for gaming pc);
 
