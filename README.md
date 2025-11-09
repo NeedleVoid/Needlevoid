@@ -35,7 +35,7 @@ DNI:
 
   (This isn't necessary DNI, but I don't like talking about my past relationships so keep in mind I probably will back away in any type of mentions of relationships, even if they aren't related to me)
 
-(not fan of TADC, but cosplays are good, tho it's less than DNI so dw)
+  (not fan of TADC, but cosplays are ok, tho you can still dm me, but it's one of reasons why I left #1 Safe Server)
 
 
 Stuff I'm into so far:
