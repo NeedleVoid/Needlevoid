@@ -35,6 +35,7 @@ DNI:
 
   (This isn't necessary DNI, but I don't like talking about my past relationships so keep in mind I probably will back away in any type of mentions of relationships, even if they aren't related to me)
 
+(not fan of TADC, but cosplays are good, tho it's less than DNI so dw)
 
 
 Stuff I'm into so far:
