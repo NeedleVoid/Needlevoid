@@ -37,6 +37,8 @@ DNI:
 
   (not fan of TADC, but cosplays are ok, tho you can still interact with me, but this is one of reasons why I left #1 Safe Server)
 
+Do NOT ask me about supporter if you're stranger. Thx.
+
 
 Stuff I'm into so far:
 
