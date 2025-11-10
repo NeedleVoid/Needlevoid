@@ -31,13 +31,13 @@ DNI:
 - 16 yo's and lower;
 - People who bother me when I'm currently having DNI (I often do that or seperate myself usually, often I put my ponies who have DNI so you will know if something that I have DNI or I just kindly ask you to leave. I'm usually trying to find some seperate place from people tho);
 - People who cover me non stop (I first kindly ask if something or just move, but if you keep doing it then yeah 🤷);
+- (this one is less DNI, but I don't like much TADC fandom, you can still interact with me tho dw)
   
 
   (This isn't necessary DNI, but I don't like talking about my past relationships so keep in mind I probably will back away in any type of mentions of relationships, even if they aren't related to me)
 
-  (not fan of TADC, but cosplays are ok, tho you can still interact with me, but this is one of reasons why I left #1 Safe Server)
 
-Do NOT ask me about supporter if you're stranger. Thx.
+  Do NOT ask me about supporter if you're stranger. Thx.
 
 
 Stuff I'm into so far:
@@ -52,7 +52,7 @@ Stuff I'm into so far:
 
 ☆ My English isn't good because it's not my first language so please keep that in mind;
 
-☆ Where I sit on PT? Depends, but I don't sit on Safe Server #1 anymore. Sometimes close to spawn in 18+, sometimes also in Safe Server 2 I'm sitting close to spawn, under spawn on bench or somewhere under trees near paths idek;
+☆ Where I sit on PT? Depends, but I don't think I will sit on Safe Server #1 anymore. Don't ask why. Or if I will it will be somewhere high up from spawn or idk somewhere low almost in the end of map. Sometimes close to spawn in 18+, sometimes also in Safe Server 2 I'm sitting close to spawn, under spawn on bench or somewhere under trees near paths idek;
  
 ☆ I like playing Minecraft, Stardew Valley, Uma Musume (sometimes) and Madoka Magica Exedra (I play few other games, but my laptop is a little laggy, currently collecting for gaming pc);
 
