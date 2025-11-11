@@ -20,6 +20,9 @@ c) I sometimes want to
 
 Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with anyways. Also don't add me if your interaction with me just gonna be basically two convos and you later will forget who am I, or I just kick you out from my friend list.
 
+PS: I can be mean. Depends on my mood.
+
+
 DNI:
 
 - Homophobes, Racists, Proshippers, Zoophiles etc.;
@@ -51,7 +54,7 @@ Stuff I'm into so far:
 
 ☆ My English isn't good because it's not my first language so please keep that in mind;
 
-☆ Where I sit on PT? Depends, but I don't think I will sit on Safe Server #1 anymore. Don't ask why. Or if I will it will be somewhere high up from spawn or idk somewhere low almost in the end of map. Sometimes close to spawn in 18+, sometimes also in Safe Server 2 I'm sitting close to spawn, under spawn on bench or somewhere under trees near paths idek;
+☆ Where I sit on PT? Depends, but I'm sitting somewhere on Safe Server #1 high up from spawn or idk somewhere low almost in the end of map. Sometimes near signpost close to Glitch area. Close to spawn sometimes in 18+, sometimes also in Safe Server 2 I'm sitting close to spawn, under spawn on bench or somewhere under trees near paths idek;
  
 ☆ I like playing Minecraft, Stardew Valley, Uma Musume (sometimes) and Madoka Magica Exedra (I play few other games, but my laptop is a little laggy, currently collecting for gaming pc);
 
