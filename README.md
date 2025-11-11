@@ -60,9 +60,9 @@ Stuff I'm into so far:
 
 ☆ So far I'm not into any serious RP, I can play a little, but if anyone would ask I'm not comfy to do it for now;
  
-☆ I like also listening to music, any types really (I hate Disco Polo, but somehow I like few songs from this type lol);
+☆ I like also listening to music, any types really;
 
-☆ I love drawing sometimes (even if I'm not artist tbh), read books, collecting keychains and LPS, trying also rn do cosplay (but I'm not doing everything from scratch because I'm not that talented sadly ;-;);
+☆ I love drawing sometimes (even if I'm not artist tbh), read books, collecting keychains and LPS, trying also rn do cosplay (but I'm not doing everything from scratch because I'm not that talented sadly);
 
 
 I think that's all...I prob add something when I have free time or remember something. Cya
