@@ -39,7 +39,7 @@ DNI:
   (This isn't necessary DNI, but I don't like talking about my past relationships so keep in mind I probably will back away in any type of mentions of relationships, even if they aren't related to me)
 
 
-  Do NOT ask me about supporter if you're stranger. Thx.
+  Do NOT ask me about supporter if you're stranger. Which is like 99,9% of people. Thx.
 
 
 Stuff I'm into so far:
