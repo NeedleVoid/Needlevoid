@@ -22,6 +22,7 @@ Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it
 
 PS: I can be mean. Depends on my mood.
 
+Also whisper to me because I might be often offtab.
 
 DNI:
 
