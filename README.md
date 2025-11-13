@@ -95,7 +95,7 @@ Stuff I'm into so far:
 
 
 
-(Ignore the fact the map is a bit old, I sometimes also sit in tents in safe 2 and islands on 18+ or safe 2, but remember I also don't sit in these places non stop since I'm working thx)
+(Ignore the fact the map is a bit old, I sometimes also sit in tents in safe server 2 and islands on 18+ or safe 2, but remember I also don't sit in these places non stop since I'm working thx)
 
 
 
