@@ -53,8 +53,6 @@ Stuff I'm into so far:
 ☆ Pronouns: she/her, but he/him is fine too;
 
 ☆ My English isn't good because it's not my first language so please keep that in mind;
-
-☆ Where I sit on PT? Depends, but I'm sitting somewhere on Safe Server #1 high up from spawn or idk somewhere low almost in the end of map. Sometimes under tents somewhere close to path under trees. Close to spawn sometimes in 18+, sometimes also in Safe Server 2 I'm sitting close to spawn, under spawn on bench or somewhere under trees near paths idek;
  
 ☆ I like playing Minecraft, Stardew Valley, Uma Musume (sometimes) and Madoka Magica Exedra (I play few other games, but my laptop is a little laggy, currently collecting for gaming pc);
 
@@ -63,6 +61,42 @@ Stuff I'm into so far:
 ☆ I like also listening to music, any types really;
 
 ☆ I love drawing sometimes (even if I'm not artist tbh), read books, collecting keychains and LPS, trying also rn do cosplay (but I'm not doing everything from scratch because I'm not that talented sadly);
+
+
+☆                                                                           𝐖𝐡𝐞𝐫𝐞 𝐈 𝐬𝐢𝐭 𝐨𝐧 𝐏𝐓?                                                                             ☆
+
+
+
+
+☆                                                                            Safe Server #1                                                                                ☆
+
+
+
+<img width="1200" height="901" alt="safe server 1" src="https://github.com/user-attachments/assets/1c58481a-fccf-4b9b-a5a8-8c000f070854" />
+
+
+
+☆                                                                           Safe Server #2                                                                                 ☆
+
+
+
+
+
+
+<img width="1200" height="901" alt="safe server 2" src="https://github.com/user-attachments/assets/59654844-c12e-4c4e-b74d-b2358e9c8774" />
+
+
+
+☆                                                                                 18+                                                                                      ☆
+
+
+
+<img width="1200" height="901" alt="18plus" src="https://github.com/user-attachments/assets/3aea7c61-3d3a-4452-bd02-aae8d27682da" />
+
+
+
+(Ignore the fact the map is a bit old, I sometimes also sit in tents in safe 2 and islands on 18+ or safe 2, but remember I also don't sit in these places non stop since I'm working thx)
+
 
 
 I think that's all...I prob add something when I have free time or remember something. Cya
