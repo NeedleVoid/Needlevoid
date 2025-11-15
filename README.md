@@ -1,6 +1,5 @@
 ## Hiya! 
 
-<img width="20" height="20" alt="tumblr_4af3e1dfc1ef50c5a8bf0f6081b232d6_49877d31_75" src="https://github.com/user-attachments/assets/755b7c55-ad8a-407b-9ec4-a5d5cf90b11f" />
 
 ![dc8601df47905cee8ee33047a749f394](https://github.com/user-attachments/assets/441a18b0-1106-4c23-b652-55948106796b)
 
@@ -107,7 +106,9 @@ Stuff I'm into so far:
 
 
 ![tumblr_346d075e94d9bef4883d24264c7779af_9ff0112c_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/5ab680cb-9ec2-42a1-ae8e-cf611c82e7de)
+![tumblr_93c13ac605079661f7809a0ad9d9d49c_d2c906fc_100](https://github.com/user-attachments/assets/e85ee4e0-3630-4ae3-a095-962d4c659307)
 ![tumblr_8485e1a716d9e9f7dfc7e43cb8709317_05647e96_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/421c6900-0c45-47fa-b193-4708591cf363)
+<img width="99" height="56" alt="tumblr_787de63c2d8d6274e45c385823849d99_5ec9f6cf_100" src="https://github.com/user-attachments/assets/15b605b2-deb4-4eb2-95ea-81c53277500b" />
 ![tumblr_08141319ed52be9e0cf2d2a374262d6d_b000f0f0_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/416dc4c1-e998-4efe-8562-7f501bb5cc14)
 
 I think that's all...I prob add something when I have free time or remember something. Cya
