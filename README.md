@@ -18,18 +18,21 @@ c) I sometimes want to
 
 
 
-Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with anyways. Also don't add me if your interaction with me just gonna be basically two convos and you later will forget who am I, or I just kick you out from my friend list. ![tumblr_78674e5eccb5dae59fd969a15e4cbf08_4594f009_75](https://github.com/user-attachments/assets/8cd2ef37-6373-411e-84b7-4a6fcdfe4d41)
+Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later (and I see this happening very often). I'm terrible person to be friends with anyways. Also don't add me if your interaction with me just gonna be basically two convos and you later will forget who am I, or I just kick you out from my friend list. 
+
+![tumblr_78674e5eccb5dae59fd969a15e4cbf08_4594f009_75](https://github.com/user-attachments/assets/8cd2ef37-6373-411e-84b7-4a6fcdfe4d41)
 
 
-PS: I can be mean. Depends on my mood.
+PS: I can be mean. Depends on my mood. ![tumblr_4a5e456be246c327fe195acabced35ba_5715ff45_75](https://github.com/user-attachments/assets/6c63ddd9-79e1-4076-8370-1a1af84bd484)
 
-Also whisper to me because I might be often offtab.
+
+Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f93143c41f66b5d01_86cd17b2_75](https://github.com/user-attachments/assets/7081a830-bddf-4814-89b8-b68b00a6c2c9)
 
 
 ![dc8601df47905cee8ee33047a749f394](https://github.com/user-attachments/assets/441a18b0-1106-4c23-b652-55948106796b)
 
 
-DNI:
+<img width="20" height="20" alt="tumblr_4af3e1dfc1ef50c5a8bf0f6081b232d6_49877d31_75" src="https://github.com/user-attachments/assets/f855c547-7ba3-453a-8303-cd01e030e75d" /> DNI:
 
 - Homophobes, Racists, Proshippers, Zoophiles etc.;
 - DSMP fandom (if you have old skin it's fine, I just don't vibe good with these ppl who I met from this fandom);
@@ -43,6 +46,7 @@ DNI:
   
 
   (This isn't necessary DNI, but I don't like talking about my past relationships so keep in mind I probably will back away in any type of mentions of relationships, even if they aren't related to me)
+
 
 
   Do NOT ask me about supporter if you're stranger. Which is like 99,9% of people. Thx.
@@ -68,6 +72,8 @@ Stuff I'm into so far:
 ☆ So far I'm not into any serious RP, I can play a little, but if anyone would ask I'm not comfy to do it for now;
  
 ☆ I like also listening to music, any types really;
+
+☆ It might sometimes take time for you to become my friend
 
 ☆ I love drawing sometimes (even if I'm not artist tbh), read books, collecting keychains and LPS, trying also rn do cosplay (but I'm not doing everything from scratch because I'm not that talented sadly);
 
