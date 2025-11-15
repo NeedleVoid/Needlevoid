@@ -4,10 +4,6 @@
 ![tumblr_ca0887448f3f4002537f540fd8c66e2e_9ef2c0cc_2048](https://github.com/user-attachments/assets/0c199f37-b5ed-4c1c-bcdb-12d2284e0a34)
 
 
-![dc8601df47905cee8ee33047a749f394](https://github.com/user-attachments/assets/441a18b0-1106-4c23-b652-55948106796b)
-
-
-
 
 I'm Clover (or Soda if you like) and I'm sometimes playing PT. 
 
@@ -30,6 +26,7 @@ PS: I can be mean. Depends on my mood.
 Also whisper to me because I might be often offtab.
 
 
+![dc8601df47905cee8ee33047a749f394](https://github.com/user-attachments/assets/441a18b0-1106-4c23-b652-55948106796b)
 
 
 DNI:
