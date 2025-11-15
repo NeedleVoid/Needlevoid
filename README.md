@@ -1,5 +1,6 @@
-## Hiya!
+## Hiya! 
 
+<img width="20" height="20" alt="tumblr_4af3e1dfc1ef50c5a8bf0f6081b232d6_49877d31_75" src="https://github.com/user-attachments/assets/755b7c55-ad8a-407b-9ec4-a5d5cf90b11f" />
 
 ![dc8601df47905cee8ee33047a749f394](https://github.com/user-attachments/assets/441a18b0-1106-4c23-b652-55948106796b)
 
