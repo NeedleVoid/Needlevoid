@@ -24,6 +24,10 @@ PS: I can be mean. Depends on my mood.
 
 Also whisper to me because I might be often offtab.
 
+
+![tumblr_fde363a023c48f5fb9a7550c5d059b7d_e96c7a7e_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/2b5eab1b-c5bd-4b07-90c4-94c289834d21)
+
+
 DNI:
 
 - Homophobes, Racists, Proshippers, Zoophiles etc.;
@@ -41,6 +45,10 @@ DNI:
 
 
   Do NOT ask me about supporter if you're stranger. Which is like 99,9% of people. Thx.
+
+
+  
+![tumblr_346d075e94d9bef4883d24264c7779af_9ff0112c_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/f71ed043-776d-43fe-a630-081d9ad15af9)
 
 
 Stuff I'm into so far:
