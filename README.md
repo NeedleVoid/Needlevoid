@@ -25,7 +25,6 @@ PS: I can be mean. Depends on my mood.
 Also whisper to me because I might be often offtab.
 
 
-![tumblr_fde363a023c48f5fb9a7550c5d059b7d_e96c7a7e_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/2b5eab1b-c5bd-4b07-90c4-94c289834d21)
 
 
 DNI:
@@ -48,7 +47,6 @@ DNI:
 
 
   
-![tumblr_346d075e94d9bef4883d24264c7779af_9ff0112c_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/f71ed043-776d-43fe-a630-081d9ad15af9)
 
 
 Stuff I'm into so far:
@@ -107,6 +105,9 @@ Stuff I'm into so far:
 (Ignore the fact the map is a bit old, I sometimes also sit in tents in safe server 2 and islands on 18+ or safe 2, but remember I also don't sit in these places non stop since I'm working thx)
 
 
+![tumblr_346d075e94d9bef4883d24264c7779af_9ff0112c_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/5ab680cb-9ec2-42a1-ae8e-cf611c82e7de)
+![tumblr_8485e1a716d9e9f7dfc7e43cb8709317_05647e96_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/421c6900-0c45-47fa-b193-4708591cf363)
+![tumblr_08141319ed52be9e0cf2d2a374262d6d_b000f0f0_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/416dc4c1-e998-4efe-8562-7f501bb5cc14)
 
 I think that's all...I prob add something when I have free time or remember something. Cya
 
