@@ -1,13 +1,14 @@
 ## Hiya! 
 
+![tumblr_3b262a5d76ffccca50ec11b01ae3db88_c82800f4_400](https://github.com/user-attachments/assets/df565d12-df63-4132-ad85-99640bb41727)
+
 
 ![dc8601df47905cee8ee33047a749f394](https://github.com/user-attachments/assets/441a18b0-1106-4c23-b652-55948106796b)
 
 
 
 
-I'm Clover (or Soda if you like) and I'm sometimes playing PT. ![tumblr_78674e5eccb5dae59fd969a15e4cbf08_4594f009_75](https://github.com/user-attachments/assets/8cd2ef37-6373-411e-84b7-4a6fcdfe4d41)
-
+I'm Clover (or Soda if you like) and I'm sometimes playing PT. 
 
 
 ![tumblr_982bf3e864082081c6dbe44a4f5b388d_45e62d5d_75](https://github.com/user-attachments/assets/69af6eb3-3c23-4a9c-bb37-149f031444c9) Just a  small note, if I blocked your invites or hid you it's probably because either:
@@ -20,7 +21,8 @@ c) I sometimes want to
 
 
 
-Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with anyways. Also don't add me if your interaction with me just gonna be basically two convos and you later will forget who am I, or I just kick you out from my friend list.
+Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later. I'm terrible person to be friends with anyways. Also don't add me if your interaction with me just gonna be basically two convos and you later will forget who am I, or I just kick you out from my friend list. ![tumblr_78674e5eccb5dae59fd969a15e4cbf08_4594f009_75](https://github.com/user-attachments/assets/8cd2ef37-6373-411e-84b7-4a6fcdfe4d41)
+
 
 PS: I can be mean. Depends on my mood.
 
