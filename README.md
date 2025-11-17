@@ -36,8 +36,6 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 ![tumblr_60d146ebc02d37ca2efc5dd27df26bb1_61d198cf_400](https://github.com/user-attachments/assets/c93d5abb-2af8-4206-9cda-c545f9dda02b)
 
 
-![dc8601df47905cee8ee33047a749f394](https://github.com/user-attachments/assets/441a18b0-1106-4c23-b652-55948106796b)
-
 
 <img width="20" height="20" alt="tumblr_4af3e1dfc1ef50c5a8bf0f6081b232d6_49877d31_75" src="https://github.com/user-attachments/assets/f855c547-7ba3-453a-8303-cd01e030e75d" /> DNI:
 
@@ -98,8 +96,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 
 
 
-<img width="1200" height="901" alt="safe server 1" src="https://github.com/user-attachments/assets/1c58481a-fccf-4b9b-a5a8-8c000f070854" />
-
+depends, because I move there alot
 
 
 
@@ -120,7 +117,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 ![tumblr_da18de05f80a98463aa289af78033b3f_b0f292b6_75](https://github.com/user-attachments/assets/df4b5aa0-81e2-494e-94bd-81f6a06465a8)
 
 
-Honestly on 18+ depends so yea :p 
+18+ depends too so yea :p 
 
 
 
