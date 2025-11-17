@@ -120,10 +120,9 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 ![tumblr_da18de05f80a98463aa289af78033b3f_b0f292b6_75](https://github.com/user-attachments/assets/df4b5aa0-81e2-494e-94bd-81f6a06465a8)
 
 
+Honestly on 18+ depends so yea :p 
 
 
-
-<img width="1200" height="901" alt="18plus" src="https://github.com/user-attachments/assets/3aea7c61-3d3a-4452-bd02-aae8d27682da" />
 
 
 
