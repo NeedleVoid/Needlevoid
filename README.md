@@ -4,6 +4,9 @@
 ![tumblr_ca0887448f3f4002537f540fd8c66e2e_9ef2c0cc_2048](https://github.com/user-attachments/assets/0c199f37-b5ed-4c1c-bcdb-12d2284e0a34)
 
 
+![tumblr_3a1764a9ef1303400b633e5fc97969e3_8c901f17_400](https://github.com/user-attachments/assets/4110dcf5-e675-4ffc-9614-2bfacd282e69)
+
+
 
 ![tumblr_1e3336fac593561cf2df26c030dc42dc_eea1ecad_75](https://github.com/user-attachments/assets/60ec0d4e-72df-44c5-a8a3-ba18b6a13ded) I'm Clover (or Soda if you like) and I'm sometimes playing PT. ![tumblr_3a5d19641ba69614ff2044e6607f6806_1c45c0f1_75](https://github.com/user-attachments/assets/057b277a-c6e2-49e5-9371-bb197d7eb6a6)
 
@@ -50,7 +53,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 - People who cover me non stop (I first kindly ask if something or just move, but if you keep doing it then yeah 🤷);
 
 
-![tumblr_48e63740e76ced8bec0d73aca9091cf0_f1453845_75](https://github.com/user-attachments/assets/67a3731b-7738-40f1-b3d5-6ee6ab174e2f)  Do NOT ask me about supporter if you're stranger. Which is like 99,9% of people. Thx. ![tumblr_c288a705b9916406629945ff3caaa433_4275c44b_75](https://github.com/user-attachments/assets/81655632-70a4-4de2-8ca0-ea4ed7e7b430)
+![tumblr_48e63740e76ced8bec0d73aca9091cf0_f1453845_75](https://github.com/user-attachments/assets/67a3731b-7738-40f1-b3d5-6ee6ab174e2f)  Do NOT ask me about supporter if you're stranger. Which is like 98,9% of people. Thx. ![tumblr_c288a705b9916406629945ff3caaa433_4275c44b_75](https://github.com/user-attachments/assets/81655632-70a4-4de2-8ca0-ea4ed7e7b430)
 
 
   
@@ -127,18 +130,33 @@ depends, because I move there alot
 
 
 ![tumblr_346d075e94d9bef4883d24264c7779af_9ff0112c_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/5ab680cb-9ec2-42a1-ae8e-cf611c82e7de)
+![tumblr_2d010a96fcb899e8e38fae4a63f44e6d_ed2fda03_100](https://github.com/user-attachments/assets/0309e042-c690-4987-9678-dff67cf433a4)
 ![tumblr_93c13ac605079661f7809a0ad9d9d49c_d2c906fc_100](https://github.com/user-attachments/assets/e85ee4e0-3630-4ae3-a095-962d4c659307)
 ![tumblr_8485e1a716d9e9f7dfc7e43cb8709317_05647e96_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/421c6900-0c45-47fa-b193-4708591cf363)
 <img width="99" height="56" alt="tumblr_787de63c2d8d6274e45c385823849d99_5ec9f6cf_100" src="https://github.com/user-attachments/assets/15b605b2-deb4-4eb2-95ea-81c53277500b" />
+![tumblr_5077364f3c616cfcac0863a3b6f4d2fe_52084bee_100](https://github.com/user-attachments/assets/c6277669-aad0-4be7-99aa-2a4e3301731c)
 ![tumblr_08141319ed52be9e0cf2d2a374262d6d_b000f0f0_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/416dc4c1-e998-4efe-8562-7f501bb5cc14)
+<img width="99" height="56" alt="tumblr_9810d06acaa609121db7e62cfbcebd8d_152ebe0d_100" src="https://github.com/user-attachments/assets/f9ede3f9-33e4-404e-9e22-2d29d1e4ab95" />
+<img width="99" height="56" alt="tumblr_981047336544f8dbddf8c92886c74634_343ef466_100" src="https://github.com/user-attachments/assets/b6546e76-dd2f-4d8b-8c53-6b413d59642d" />
 ![tumblr_aa36865e4ce1fd745d1061def91e95a5_50e46898_250](https://github.com/user-attachments/assets/d8e14927-d2d6-4850-8458-e5bb6db5ddef)
+<img width="95" height="52" alt="tumblr_cea024188d11cb122bce575c24439d7c_09049aee_100" src="https://github.com/user-attachments/assets/50e6b229-d152-453c-97ce-dd3f29ffed13" />
+![tumblr_d79c57bf2f02b7204b5fc173ef18fdff_130577ed_100](https://github.com/user-attachments/assets/2a19cfd0-438a-4c61-9a12-8876553cb76b)
 ![tumblr_83dd083bcb0c786b0a050e8f7d9b57b2_0f95a3a4_250](https://github.com/user-attachments/assets/b69b9228-b9c2-4249-8d80-d6d0c9dee4a2)
+![tumblr_f192046c933461563bbd20740ff0f4f6_376ba035_100](https://github.com/user-attachments/assets/fc36753f-ecaa-47df-839a-87592e0a206c)
+![tumblr_ea77be550f835f4d4a87d43928661cda_ee33e908_100](https://github.com/user-attachments/assets/210b20b7-f9ca-46d4-a6e0-3683fa475f2f)
+![tumblr_a09811eedf558376f73f091fe95c244e_7bf1b41d_250](https://github.com/user-attachments/assets/2f601c53-290b-4f42-8190-9d0feae50cb5)
 ![tumblr_4fb71705cf6d94b8db1d2a50e32aae9d_07406008_100](https://github.com/user-attachments/assets/e8ac497c-4115-495f-b620-99e5643eeecb)
 ![tumblr_8c6981fe2dfe91e383bef9334c79b0c3_1b8d296f_100](https://github.com/user-attachments/assets/1652dd52-e0a7-41a4-8b54-555b32dba819)
+![tumblr_045375c68ae32c44696ce18483cd703e_1e3482b8_250](https://github.com/user-attachments/assets/3cb93c40-8a9b-4666-9eee-536773101f78)
+<img width="99" height="56" alt="tumblr_46e5a98af9d8fad2923fdbd123826da6_9222a27f_100" src="https://github.com/user-attachments/assets/b0d13e44-ab22-4695-a4f7-8c115d2c242c" />
 ![tumblr_584c078394b2ccb1c4e1509835187774_4b82d7c7_100](https://github.com/user-attachments/assets/678d75a2-26fb-4e48-ab7e-ac206c0e9df6)
 ![tumblr_a2c5ebb965f5b437bb74ad3673e490ef_83e216a4_100](https://github.com/user-attachments/assets/95b82a06-f826-4816-97cd-5f6d260d7c69)
 <img width="99" height="56" alt="tumblr_d64b3dc25159dd6467a2e0bb359df6c7_ce15d0fd_100" src="https://github.com/user-attachments/assets/950cef81-63c8-4752-8ce6-79808408fc7f" />
 ![tumblr_22231001377df9e4d85a5fe93fec4c86_ca1b01f8_100](https://github.com/user-attachments/assets/2b49ccdd-ddd1-4999-aed6-15327f63b934)
+![tumblr_4966dacc3a478f5cceab20f309e69ff4_8d4e913b_250](https://github.com/user-attachments/assets/13bffc2f-b595-4c91-adc6-6c1226561dfd)
+<img width="99" height="57" alt="tumblr_763f8375ce9268671d3265f0d13636b1_1477c288_100" src="https://github.com/user-attachments/assets/34260402-d063-42fb-9fcd-da6b4f654c15" />
+<img width="99" height="56" alt="tumblr_222e4c942a557012ad7ede98ba1ee2e0_c34dfd98_100" src="https://github.com/user-attachments/assets/3b75584d-a726-4ac3-9cac-b0894d4e73f7" />
+
 
 
 
@@ -146,12 +164,8 @@ I think that's all...I prob add something when I have free time or remember some
 
 
 
+![tumblr_729aaa53b277efc2d157f48fdb8753db_5ac9ebcf_1280](https://github.com/user-attachments/assets/6aca1d1f-6285-4293-ab3f-6b9419b0eed0)
 
-
-
-
-
-![a7d2c0f58e6c9b1b5db9416c44cb79e2732f0fb7_hq-ezgif com-crop](https://github.com/user-attachments/assets/a15e8752-bd8d-4ca9-83b1-f3d4e1407f54)
 
 
 
