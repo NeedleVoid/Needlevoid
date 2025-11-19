@@ -83,7 +83,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 
 ☆ I like also listening to music, any types really; ![tumblr_4369c4316177a913a16ed6b69c753565_9409e830_75](https://github.com/user-attachments/assets/2e612d1f-1e05-48a7-9240-2f0bd1b3023e)
 
-☆ It might sometimes take time for you to become my friend, after last time I don't trust people so much sorry; ![tumblr_e7e8092d5177cf5d515244e30b02d795_1d60eff2_75](https://github.com/user-attachments/assets/445986fc-ba40-4d50-8059-3d83a66281e9)
+☆ It might sometimes take time for you to become my friend, after last time I don't trust people so much sorry, I'm not trusting much people now; ![tumblr_e7e8092d5177cf5d515244e30b02d795_1d60eff2_75](https://github.com/user-attachments/assets/445986fc-ba40-4d50-8059-3d83a66281e9)
 
 
 ☆ I love drawing sometimes (even if I'm not artist tbh), read books, collecting keychains and LPS, trying also rn do cosplay (but I'm not doing everything from scratch because I'm not that talented sadly); ![tumblr_fa306c97e8b936714cbf318501553070_a7e67d59_75](https://github.com/user-attachments/assets/178a365c-d8f9-4945-b4b8-8b38da02ff44)
