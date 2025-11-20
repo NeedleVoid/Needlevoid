@@ -72,7 +72,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 
 ☆ Pronouns: she/her, but he/him is fine too; ![tumblr_feb268cf229dc0df6c83c2582ddc32ca_100634cd_75](https://github.com/user-attachments/assets/83974e64-122f-46c0-9647-c231f7682f8f)
 
-☆ IWC when I need some time alone, last time I wanted it few times someone got upset for it so I can't believe I have to make this clear); ![tumblr_16c879c06c5986e4fd952400599aff07_50d3cffa_75](https://github.com/user-attachments/assets/8d230850-de3d-4728-aac7-6d69135454e8)
+☆ IWC when I need some time alone, last time I wanted it few times someone got upset for it so I can't believe I have to make this clear; ![tumblr_16c879c06c5986e4fd952400599aff07_50d3cffa_75](https://github.com/user-attachments/assets/8d230850-de3d-4728-aac7-6d69135454e8)
 
 ☆ My English isn't good because it's not my first language so please keep that in mind; ![tumblr_e40eb1e408e4b082eb01a97efa5ffb04_598d2b7e_75](https://github.com/user-attachments/assets/71cfc510-3b74-4879-8dc8-cfd6a3256b6d)
 
