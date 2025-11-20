@@ -154,12 +154,17 @@ depends, because I move there alot
 ![tumblr_4966dacc3a478f5cceab20f309e69ff4_8d4e913b_250](https://github.com/user-attachments/assets/13bffc2f-b595-4c91-adc6-6c1226561dfd)
 <img width="99" height="57" alt="tumblr_763f8375ce9268671d3265f0d13636b1_1477c288_100" src="https://github.com/user-attachments/assets/34260402-d063-42fb-9fcd-da6b4f654c15" />
 <img width="99" height="56" alt="tumblr_222e4c942a557012ad7ede98ba1ee2e0_c34dfd98_100" src="https://github.com/user-attachments/assets/3b75584d-a726-4ac3-9cac-b0894d4e73f7" />
-
+<img width="99" height="56" alt="tumblr_9a5bea4484d3c1d15d35be8156e6e865_cc374ac8_100" src="https://github.com/user-attachments/assets/39ee1844-6802-4607-9945-44f9b4877fb9" />
+<img width="99" height="55" alt="tumblr_fd2cf85e1e21d31bc7d40ce705a2f65c_56ff6aff_100" src="https://github.com/user-attachments/assets/159e9f3e-7038-45f6-a7c5-bba556c3658a" />
 
 
 
 I think that's all...I prob add something when I have free time or remember something. Cya
 
+
+
+
+![tumblr_444e336c58f295647dc07fa173d0d60e_153ecb75_500](https://github.com/user-attachments/assets/71127ee2-64a0-4efd-a666-1413a6dc698f)
 
 
 ![tumblr_729aaa53b277efc2d157f48fdb8753db_5ac9ebcf_1280](https://github.com/user-attachments/assets/6aca1d1f-6285-4293-ab3f-6b9419b0eed0)
