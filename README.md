@@ -131,12 +131,27 @@ depends, because I move there alot
 (Ignore the fact the map is a bit old, I sometimes also sit in tents in safe server 2 and islands on 18+ or safe 2, but remember I also don't sit in these places non stop since I'm working thx)
 
 
+![tumblr_5a5d610bed4f0aa17eb9a2736a4dcb37_bb689709_100](https://github.com/user-attachments/assets/e4532617-c98e-4155-bd32-4534d107a12f)
+![tumblr_55a0beacddaef33bc464ca130758c009_dc5c752b_100](https://github.com/user-attachments/assets/6a44a106-695e-46e4-9ccd-ec3ef3b03d6c)
 ![tumblr_346d075e94d9bef4883d24264c7779af_9ff0112c_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/5ab680cb-9ec2-42a1-ae8e-cf611c82e7de)
+![tumblr_98a4b6580df39911fe1ac7138bacf69f_09cda616_100](https://github.com/user-attachments/assets/44982fae-8e9a-49f0-a08a-a53cf790dec3)
+![tumblr_cca6074c17df97b82ad8507923e1feb6_92548458_250](https://github.com/user-attachments/assets/ca113ddf-a002-4895-bf5e-e90ff57b58fc)
 ![tumblr_2d010a96fcb899e8e38fae4a63f44e6d_ed2fda03_100](https://github.com/user-attachments/assets/0309e042-c690-4987-9678-dff67cf433a4)
 ![tumblr_93c13ac605079661f7809a0ad9d9d49c_d2c906fc_100](https://github.com/user-attachments/assets/e85ee4e0-3630-4ae3-a095-962d4c659307)
 ![tumblr_8485e1a716d9e9f7dfc7e43cb8709317_05647e96_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/421c6900-0c45-47fa-b193-4708591cf363)
+<img width="99" height="56" alt="tumblr_c008b4d56b53530f0b8acb13cfe7656a_93c54e93_100" src="https://github.com/user-attachments/assets/ae60014f-3a61-47fa-914b-7c670ad9caca" />![tumblr_46c7f0f7b98e51ee0dbe664d4e7d326b_ea8931e5_250](https://github.com/user-attachments/assets/de11e967-e89f-4884-8f40-33c990d97c2d)
+![tumblr_608c4eae1dc8b7c570c56cc2f239759b_1daa1bb0_250](https://github.com/user-attachments/assets/cbd340f0-25ef-4d30-903d-2780eb6e53fc)
+![tumblr_9370e2ab4830d136e8dfbedcadf37cef_a49cfe2d_250](https://github.com/user-attachments/assets/84952f68-ec2b-4e7e-aefb-fb84ef453f8e)
+![tumblr_9a59202e6fd357fd4344f10a23c38e58_439ccbbd_250](https://github.com/user-attachments/assets/f44f5f9c-eb79-4092-b6c3-5f43124ae083)
+![tumblr_b8e0e15114d83cc009ff5e28c39c818c_a04326b6_250](https://github.com/user-attachments/assets/ef2a8804-121d-45e5-8f3a-28db5801579a)
+![tumblr_7ea55f68fba66cbc2714d4538e6637b2_f040b543_250](https://github.com/user-attachments/assets/a08baa87-a152-4422-aeb9-64863f34131a)
 ![tumblr_5077364f3c616cfcac0863a3b6f4d2fe_52084bee_100](https://github.com/user-attachments/assets/c6277669-aad0-4be7-99aa-2a4e3301731c)
 ![tumblr_08141319ed52be9e0cf2d2a374262d6d_b000f0f0_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/416dc4c1-e998-4efe-8562-7f501bb5cc14)
+![tumblr_4816bac91bcee47922712589fd727486_0f19c835_100](https://github.com/user-attachments/assets/c6711d1d-6991-4e6a-a5ab-8b55b347d00c)
+<img width="99" height="56" alt="tumblr_c6aa6766d48f4ce0c3df23693cff5740_4c702f58_100" src="https://github.com/user-attachments/assets/82c50273-1362-482b-b028-f38b27ce7c89" />
+![tumblr_ac229a4940e5a8a2384365102f1a8238_80e92de2_100](https://github.com/user-attachments/assets/b2f0ee34-cba9-43ca-8380-9e6cad9168e9)
+![tumblr_270331387870ebf19d168f534ddb131b_9f31628d_400](https://github.com/user-attachments/assets/fe23494a-bb08-4f07-a9f0-41db00687475)
+![tumblr_cd7dfcb5b43e0f3dfbb6933fefa076d4_87a2931b_250](https://github.com/user-attachments/assets/bbab09be-f92f-466b-9c5e-7be93d09a72d)
 <img width="99" height="56" alt="tumblr_9810d06acaa609121db7e62cfbcebd8d_152ebe0d_100" src="https://github.com/user-attachments/assets/f9ede3f9-33e4-404e-9e22-2d29d1e4ab95" />
 <img width="99" height="56" alt="tumblr_981047336544f8dbddf8c92886c74634_343ef466_100" src="https://github.com/user-attachments/assets/b6546e76-dd2f-4d8b-8c53-6b413d59642d" />
 <img width="95" height="52" alt="tumblr_cea024188d11cb122bce575c24439d7c_09049aee_100" src="https://github.com/user-attachments/assets/50e6b229-d152-453c-97ce-dd3f29ffed13" />
