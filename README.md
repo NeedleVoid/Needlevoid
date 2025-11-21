@@ -167,6 +167,11 @@ depends, because I move there alot
 <img width="99" height="56" alt="tumblr_222e4c942a557012ad7ede98ba1ee2e0_c34dfd98_100" src="https://github.com/user-attachments/assets/3b75584d-a726-4ac3-9cac-b0894d4e73f7" />
 <img width="99" height="56" alt="tumblr_9a5bea4484d3c1d15d35be8156e6e865_cc374ac8_100" src="https://github.com/user-attachments/assets/39ee1844-6802-4607-9945-44f9b4877fb9" />
 <img width="99" height="55" alt="tumblr_fd2cf85e1e21d31bc7d40ce705a2f65c_56ff6aff_100" src="https://github.com/user-attachments/assets/159e9f3e-7038-45f6-a7c5-bba556c3658a" />
+![tumblr_8c5b543d268815525e4715c68f9e97aa_73a5cb3d_100](https://github.com/user-attachments/assets/a5f91cc8-37b1-4018-a59f-7c4577431705)
+<img width="99" height="56" alt="tumblr_276a8b1d2c6711b4e1249fa014c80fde_b2691fa2_100" src="https://github.com/user-attachments/assets/dd9260ab-15a9-4e0d-ab8d-9f1e4ae8cebc" />
+
+
+
 
 ![tumblr_346d075e94d9bef4883d24264c7779af_9ff0112c_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/5ab680cb-9ec2-42a1-ae8e-cf611c82e7de)
 ![tumblr_8485e1a716d9e9f7dfc7e43cb8709317_05647e96_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/421c6900-0c45-47fa-b193-4708591cf363)
@@ -175,13 +180,17 @@ depends, because I move there alot
 ![tumblr_a2c5ebb965f5b437bb74ad3673e490ef_83e216a4_100](https://github.com/user-attachments/assets/95b82a06-f826-4816-97cd-5f6d260d7c69)
 ![tumblr_045375c68ae32c44696ce18483cd703e_1e3482b8_250](https://github.com/user-attachments/assets/3cb93c40-8a9b-4666-9eee-536773101f78)
 ![tumblr_83dd083bcb0c786b0a050e8f7d9b57b2_0f95a3a4_250](https://github.com/user-attachments/assets/b69b9228-b9c2-4249-8d80-d6d0c9dee4a2)
-![tumblr_270331387870ebf19d168f534ddb131b_9f31628d_400](https://github.com/user-attachments/assets/fe23494a-bb08-4f07-a9f0-41db00687475)
+![tumblr_10b5c8170a42e9d052cd7bcf46e148ce_963550ff_250](https://github.com/user-attachments/assets/8906bc00-05a1-4ee7-bacf-5e3d5b1c856a)
 ![tumblr_cd7dfcb5b43e0f3dfbb6933fefa076d4_87a2931b_250](https://github.com/user-attachments/assets/bbab09be-f92f-466b-9c5e-7be93d09a72d)
 ![tumblr_9a29bef84e75302f24670d6520821a76_b101e38d_250](https://github.com/user-attachments/assets/208e7ea5-3d24-4290-aee5-ed87bf764a32)
 ![tumblr_fe7294e4feafc70a7f199430b1624655_3a1bf59e_250](https://github.com/user-attachments/assets/638913f4-0103-4afb-bcc9-6a275e9dcf7a)
+![tumblr_c8ffb175e99a57ff2659cba068110b89_3f55671c_250](https://github.com/user-attachments/assets/020f2f98-8e46-4413-af2a-903964618b0a)
+![tumblr_d8591fce3cd8d59ab472e17314e8e338_f8b3b335_250](https://github.com/user-attachments/assets/c1d0514e-854b-4f91-89b1-76df713a87f0)
 
 
 
+
+![tumblr_3ff08d735a6b71306d0ac41cb9c89d00_75372a2e_1280](https://github.com/user-attachments/assets/01af2523-09ad-4342-968d-025d5ed62938)
 
 
 I think that's all...I prob add something when I have free time or remember something. Cya
