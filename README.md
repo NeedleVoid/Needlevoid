@@ -169,7 +169,8 @@ depends, because I move there alot
 <img width="99" height="55" alt="tumblr_fd2cf85e1e21d31bc7d40ce705a2f65c_56ff6aff_100" src="https://github.com/user-attachments/assets/159e9f3e-7038-45f6-a7c5-bba556c3658a" />
 ![tumblr_8c5b543d268815525e4715c68f9e97aa_73a5cb3d_100](https://github.com/user-attachments/assets/a5f91cc8-37b1-4018-a59f-7c4577431705)
 <img width="99" height="56" alt="tumblr_276a8b1d2c6711b4e1249fa014c80fde_b2691fa2_100" src="https://github.com/user-attachments/assets/dd9260ab-15a9-4e0d-ab8d-9f1e4ae8cebc" />
-
+![tumblr_21acad849ffdf09c5aed3200b06bcd84_935a49c3_100](https://github.com/user-attachments/assets/e5b84991-64ca-4dcf-9ed5-490d78481106)
+![tumblr_8c7217648c5edb1c978f4af6cdddc7e5_8f520f94_100](https://github.com/user-attachments/assets/a3027f66-a58b-4fb2-b09e-f9b66577a966)
 
 
 
@@ -186,6 +187,7 @@ depends, because I move there alot
 ![tumblr_fe7294e4feafc70a7f199430b1624655_3a1bf59e_250](https://github.com/user-attachments/assets/638913f4-0103-4afb-bcc9-6a275e9dcf7a)
 ![tumblr_c8ffb175e99a57ff2659cba068110b89_3f55671c_250](https://github.com/user-attachments/assets/020f2f98-8e46-4413-af2a-903964618b0a)
 ![tumblr_d8591fce3cd8d59ab472e17314e8e338_f8b3b335_250](https://github.com/user-attachments/assets/c1d0514e-854b-4f91-89b1-76df713a87f0)
+![tumblr_d057c2c6a0213122c0b9dbd63fd67e09_3539fd52_250](https://github.com/user-attachments/assets/fe9a2072-56e8-4f86-b673-d7a99517dfe1)
 
 
 
