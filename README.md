@@ -26,8 +26,9 @@ c) I sometimes want to
 
 
 
-Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later (and I see this happening very often). I'm terrible person to be friends with anyways. Also don't add me if your interaction with me just gonna be basically two convos and you later will forget who am I, or I just kick you out from my friend list. 
-![tumblr_78674e5eccb5dae59fd969a15e4cbf08_4594f009_75](https://github.com/user-attachments/assets/8cd2ef37-6373-411e-84b7-4a6fcdfe4d41)
+Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later (and I see this happening very often). I'm terrible person to be friends with anyways. Also don't add me if your interaction with me just gonna be basically two convos and you later will forget who am I, or I just kick you out from my friend list.![tumblr_78674e5eccb5dae59fd969a15e4cbf08_4594f009_75](https://github.com/user-attachments/assets/8cd2ef37-6373-411e-84b7-4a6fcdfe4d41) 
+
+Also I'm sorry if the convos might be dry, I'm trying to compliment ppl and then go to not make it awkward. But if people come to me I'm trying as best as possible to make conversations, but they might be a bit awkward if I don't know you...sorry!
 
 
 PS: I can be mean. Depends on my mood. ![tumblr_4a5e456be246c327fe195acabced35ba_5715ff45_75](https://github.com/user-attachments/assets/6c63ddd9-79e1-4076-8370-1a1af84bd484)
