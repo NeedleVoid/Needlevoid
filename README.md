@@ -75,7 +75,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 
 ☆ Pronouns: she/her, but he/him is fine too; ![tumblr_feb268cf229dc0df6c83c2582ddc32ca_100634cd_75](https://github.com/user-attachments/assets/83974e64-122f-46c0-9647-c231f7682f8f)
 
-☆ Sayaka Miki and Manhattan Cafe (character, not irl horse) kin; ![tumblr_7bc47b498d72e9507eb75022f93cfd65_d9d21eb8_540](https://github.com/user-attachments/assets/030b8eae-88f3-4016-825f-b8f9cd260f5b)
+☆ Sayaka Miki and Manhattan Cafe (character, not irl horse) kin [I also kin Jax from TADC, but I DO HATE when someone from fandom tries to interact with me or do RP, I think it's clear why because I'm not roleplaying]; ![tumblr_7bc47b498d72e9507eb75022f93cfd65_d9d21eb8_540](https://github.com/user-attachments/assets/030b8eae-88f3-4016-825f-b8f9cd260f5b)
 
 ☆ IWC when I need some time alone, last time I wanted it few times someone got upset for it so I can't believe I have to make this clear; ![tumblr_16c879c06c5986e4fd952400599aff07_50d3cffa_75](https://github.com/user-attachments/assets/8d230850-de3d-4728-aac7-6d69135454e8)
 
