@@ -28,7 +28,7 @@ c) I sometimes want to
 
 Pls random people DO NOT INVITE ME TO FRIENDS. I prob won't accept it or drop it later (and I see this happening very often). I'm terrible person to be friends with anyways. Also don't add me if your interaction with me just gonna be basically two convos and you later will forget who am I, or I just kick you out from my friend list.![tumblr_78674e5eccb5dae59fd969a15e4cbf08_4594f009_75](https://github.com/user-attachments/assets/8cd2ef37-6373-411e-84b7-4a6fcdfe4d41) 
 
-Also I'm sorry if the convos might be dry, I'm trying to compliment ppl and then go to not make it awkward. But if people come to me I'm trying as best as possible to make conversations, but they might be a bit awkward if I don't know you...sorry!
+Also I'm sorry if the convos might be dry, I'm trying to compliment ppl and then go to not make it awkward. But if people come to me I'm trying as best as possible to make conversations, but they might be a bit awkward if I don't know you...sorry! ![tumblr_e10729e18355ffb63a9487fbccf654bc_05b707f4_75](https://github.com/user-attachments/assets/a3d38ebb-03d8-40f9-8a25-3014a8b27a7a)
 
 
 PS: I can be mean. Depends on my mood. ![tumblr_4a5e456be246c327fe195acabced35ba_5715ff45_75](https://github.com/user-attachments/assets/6c63ddd9-79e1-4076-8370-1a1af84bd484)
@@ -97,46 +97,16 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 
 ☆ I love drawing sometimes (even if I'm not artist tbh), read books, collecting keychains and LPS, trying also rn do cosplay (but I'm not doing everything from scratch because I'm not that talented sadly); ![tumblr_fa306c97e8b936714cbf318501553070_a7e67d59_75](https://github.com/user-attachments/assets/178a365c-d8f9-4945-b4b8-8b38da02ff44)
 
+.
+.
+.
 
-☆                                                                           𝐖𝐡𝐞𝐫𝐞 𝐈 𝐬𝐢𝐭 𝐨𝐧 𝐏𝐓?                                            ☆ <img width="64" height="64" alt="tumblr_71db39ba112e4d1614172431c51fec1b_c74ff346_75" src="https://github.com/user-attachments/assets/00d8cbf0-1a32-4ebc-b401-b931f69d6f3f" />
-
-
-
-☆                                                                            Safe Server #1                                                                           ☆
-![tumblr_07dd06d11f4b05098196ff97e3a9c6b2_9f0b030f_75](https://github.com/user-attachments/assets/68595d3d-4031-430e-8543-83a2b7a592f9)
+![tumblr_07dd06d11f4b05098196ff97e3a9c6b2_9f0b030f_75](https://github.com/user-attachments/assets/68595d3d-4031-430e-8543-83a2b7a592f9) Where I sit on PT? <img width="64" height="64" alt="tumblr_71db39ba112e4d1614172431c51fec1b_c74ff346_75" src="https://github.com/user-attachments/assets/00d8cbf0-1a32-4ebc-b401-b931f69d6f3f" />
 
 
+I sit on PT mostly in Safe Server #2 and sometimes 18+, I don't like much sitting in Safe #1, but I might sit on occasions somewhere alone ![tumblr_da18de05f80a98463aa289af78033b3f_b0f292b6_75](https://github.com/user-attachments/assets/df4b5aa0-81e2-494e-94bd-81f6a06465a8)
 
 
-depends, because I move there alot
-
-
-
-
-☆                                                                           Safe Server #2                                                                        ☆ 
-![tumblr_e10729e18355ffb63a9487fbccf654bc_05b707f4_75](https://github.com/user-attachments/assets/a3d38ebb-03d8-40f9-8a25-3014a8b27a7a)
-
-
-
-
-
-
-<img width="1200" height="901" alt="safe server 2" src="https://github.com/user-attachments/assets/59654844-c12e-4c4e-b74d-b2358e9c8774" />
-
-
-
-☆                                                                                 18+                                                                            ☆
-![tumblr_da18de05f80a98463aa289af78033b3f_b0f292b6_75](https://github.com/user-attachments/assets/df4b5aa0-81e2-494e-94bd-81f6a06465a8)
-
-
-18+ depends too so yea :p 
-
-I always sit alone in these places (on ocassions I talk with some people maybe for a bit, but it's usually about something then I just go back to where I sit alone)
-
-
-
-
-(Ignore the fact the map is a bit old, I sometimes also sit in tents in safe server 2 and islands on 18+ or safe 2, but remember I also don't sit in these places non stop since I'm working thx)
 
 
 ![tumblr_5a5d610bed4f0aa17eb9a2736a4dcb37_bb689709_100](https://github.com/user-attachments/assets/e4532617-c98e-4155-bd32-4534d107a12f)
