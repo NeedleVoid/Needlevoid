@@ -45,7 +45,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 
 - Homophobes, Transphobes, Racists, Proshippers, Zoophiles etc.;
 - DSMP fandom (if you have old skin it's fine, I just don't vibe good with these ppl who I met from this fandom);
-- Stoliz shippers (Hellverse is alr in general, but IWC. I like fans who cosplay characters, but that's pretty much it, idm tho my close friends);
+- Stoliz shippers;
 - People who copying my skins (ask for inspo alright?);
 - Ragebaiters (I think this is obvious reason, but I can laugh off some stuff);
 - AI "artists"/supporters;
@@ -56,6 +56,13 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 - TCOAL fans;
 - (IWC strangers who wants cuddles, ask me first about them because I'm not comfortable with it sometimes thx);
 - Ppl asking me if I'm single (I'm sitting alone, but I hate when people bother me about that, don't be a dickhead or just DNI);
+- Alfred's Playhouse fans [ew, it has fans??];
+
+
+IWC:
+- Hellverse fans in general. I like fans who cosplay characters, but that's pretty much it;
+- South Park fans
+
 
   
 ![tumblr_48e63740e76ced8bec0d73aca9091cf0_f1453845_75](https://github.com/user-attachments/assets/67a3731b-7738-40f1-b3d5-6ee6ab174e2f)  Do NOT ask me about supporter if you're stranger. Which is like 98,9% of people. Thx. ![tumblr_c288a705b9916406629945ff3caaa433_4275c44b_75](https://github.com/user-attachments/assets/81655632-70a4-4de2-8ca0-ea4ed7e7b430)
