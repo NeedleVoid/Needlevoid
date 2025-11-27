@@ -61,8 +61,8 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 
 ![tumblr_fe7d44a6718240c2ae48f2d318ef0949_dd34ddc6_75](https://github.com/user-attachments/assets/d6977264-f32f-48f5-948d-6df53a140044) IWC:
 - Hellverse fans in general. I like fans who cosplay characters, but that's pretty much it;
-- South Park fans
-- TADC fans (I have bad past with ppl from there)
+- South Park fans;
+- TADC fans (I have bad past with ppl from there);
 
 
   
