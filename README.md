@@ -59,10 +59,11 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 - Alfred's Playhouse fans [ew, it has fans??];
 
 
-IWC:
+![tumblr_fe7d44a6718240c2ae48f2d318ef0949_dd34ddc6_75](https://github.com/user-attachments/assets/d6977264-f32f-48f5-948d-6df53a140044) IWC:
 - Hellverse fans in general. I like fans who cosplay characters, but that's pretty much it;
 - South Park fans
 - TADC fans (I have bad past with ppl from there)
+
 
   
 ![tumblr_48e63740e76ced8bec0d73aca9091cf0_f1453845_75](https://github.com/user-attachments/assets/67a3731b-7738-40f1-b3d5-6ee6ab174e2f)  Do NOT ask me about supporter if you're stranger. Which is like 98,9% of people. Thx. ![tumblr_c288a705b9916406629945ff3caaa433_4275c44b_75](https://github.com/user-attachments/assets/81655632-70a4-4de2-8ca0-ea4ed7e7b430)
