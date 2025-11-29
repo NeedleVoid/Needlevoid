@@ -60,7 +60,6 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 - People who cover me non stop (I first kindly ask if something or just move, but if you keep doing it then yeah 🤷);
 - People who hurt me (they know who);
 - TCOAL fans;
-- (IWC strangers who wants cuddles, ask me first about them because I'm not comfortable with it sometimes thx);
 - Ppl asking me if I'm single (I'm sitting alone, but I hate when people bother me about that, don't be a dickhead or just DNI);
 - Alfred's Playhouse fans [ew, it has fans??];
 - Foxe and almost all her friends;
@@ -76,7 +75,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 - South Park fans;
 - TADC fans (I have bad past with ppl from there);
 - I'm usually sitting alone, but I don't like when some randoms sit close to me so I move my place usually to sit somewhere else;
-
+- Strangers who wants cuddles, ask me first about them because I'm not comfortable with it sometimes thx;
 
   
 ![tumblr_48e63740e76ced8bec0d73aca9091cf0_f1453845_75](https://github.com/user-attachments/assets/67a3731b-7738-40f1-b3d5-6ee6ab174e2f)  Do NOT ask me about supporter if you're stranger. Which is like 98,9% of people. Thx. ![tumblr_c288a705b9916406629945ff3caaa433_4275c44b_75](https://github.com/user-attachments/assets/81655632-70a4-4de2-8ca0-ea4ed7e7b430)
