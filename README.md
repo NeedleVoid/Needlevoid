@@ -92,6 +92,9 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 
 - TADC (a little)
 - Smiling Friends
+- Uma Musume
+- Knights of Guinevere
+- Gaslight District
 - Madoka Magica
 - Ena
 - There's also few other stuff I'm into so feel free to ask
