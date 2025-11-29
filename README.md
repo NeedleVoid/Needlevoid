@@ -75,7 +75,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 - Hellverse fans in general. I like fans who cosplay characters, but that's pretty much it;
 - South Park fans;
 - TADC fans (I have bad past with ppl from there);
-
+- I'm usually sitting alone, but I don't like when some randoms sit close to me so I move my place usually to sit somewhere else;
 
 
   
