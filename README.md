@@ -41,6 +41,10 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 
 
 
+<img width="128" height="128" alt="3-1 thumb128" src="https://github.com/user-attachments/assets/a2472180-fb32-4126-ba2c-ed3286001e5b" />
+
+
+
 <img width="20" height="20" alt="tumblr_4af3e1dfc1ef50c5a8bf0f6081b232d6_49877d31_75" src="https://github.com/user-attachments/assets/f855c547-7ba3-453a-8303-cd01e030e75d" /> DNI:
 
 - Homophobes, Transphobes, Racists, Proshippers, Zoophiles etc.;
@@ -60,17 +64,26 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 - Foxe and almost all her friends;
 
 
+
+<img width="128" height="128" alt="7-1 thumb128" src="https://github.com/user-attachments/assets/e545b74a-fada-421c-a2d2-f7da4a0a0998" />
+
+
+
 ![tumblr_fe7d44a6718240c2ae48f2d318ef0949_dd34ddc6_75](https://github.com/user-attachments/assets/d6977264-f32f-48f5-948d-6df53a140044) IWC:
 - Hellverse fans in general. I like fans who cosplay characters, but that's pretty much it;
 - South Park fans;
 - TADC fans (I have bad past with ppl from there);
 
 
+
   
 ![tumblr_48e63740e76ced8bec0d73aca9091cf0_f1453845_75](https://github.com/user-attachments/assets/67a3731b-7738-40f1-b3d5-6ee6ab174e2f)  Do NOT ask me about supporter if you're stranger. Which is like 98,9% of people. Thx. ![tumblr_c288a705b9916406629945ff3caaa433_4275c44b_75](https://github.com/user-attachments/assets/81655632-70a4-4de2-8ca0-ea4ed7e7b430)
 
 
-  
+
+
+<img width="128" height="128" alt="8-1 thumb128" src="https://github.com/user-attachments/assets/1944ca42-1f3f-4686-b08d-4a449144dbb2" />
+
 
 
 ![tumblr_f332dfaf7e65e2444119720be9b15c0d_251d3b1e_75](https://github.com/user-attachments/assets/09eddfff-db3e-4b83-a270-3993104ae440) Stuff I'm into so far: ![tumblr_85a80217df143316590de15c0b16a142_e2dc7986_75](https://github.com/user-attachments/assets/cb7e1457-099a-41d1-9084-50027b172580)
@@ -119,6 +132,11 @@ I sit on PT mostly in Safe Server #2 and sometimes 18+, I don't like much sittin
 
 
 
+![tumblr_bc3159b41bc1e95463d389b2a07e910e_b83cd958_75](https://github.com/user-attachments/assets/e57347ef-7c3c-4d87-bd81-dfd01f6b7c3e) Stamps and blinkies, that describes me I guess... ![tumblr_8276ada0ea8621675a8908755424336f_bf06e91d_75](https://github.com/user-attachments/assets/a729f8c5-9c06-48ec-a508-816d2f87f0d2)
+
+
+
+
 
 ![tumblr_5a5d610bed4f0aa17eb9a2736a4dcb37_bb689709_100](https://github.com/user-attachments/assets/e4532617-c98e-4155-bd32-4534d107a12f)
 ![tumblr_c7930533f83ee1ae37edb7878f108dbf_7df9f774_100](https://github.com/user-attachments/assets/dff42703-f3d7-4c46-8bd2-c15c0409c6c9)
@@ -158,6 +176,14 @@ I sit on PT mostly in Safe Server #2 and sometimes 18+, I don't like much sittin
 <img width="99" height="56" alt="tumblr_276a8b1d2c6711b4e1249fa014c80fde_b2691fa2_100" src="https://github.com/user-attachments/assets/dd9260ab-15a9-4e0d-ab8d-9f1e4ae8cebc" />
 ![tumblr_21acad849ffdf09c5aed3200b06bcd84_935a49c3_100](https://github.com/user-attachments/assets/e5b84991-64ca-4dcf-9ed5-490d78481106)
 ![tumblr_8c7217648c5edb1c978f4af6cdddc7e5_8f520f94_100](https://github.com/user-attachments/assets/a3027f66-a58b-4fb2-b09e-f9b66577a966)
+![tumblr_2a6eb9d9422f2bfd0b71ba2a9f739658_b52ecb49_250](https://github.com/user-attachments/assets/786ddd53-54c9-4ac3-8ff9-30b6954641f5)
+![tumblr_740c191d3ccf25e038093bb1a9b0294a_ab54d948_250](https://github.com/user-attachments/assets/bf67c609-a235-43bd-850f-50d13f3a56f2)
+<img width="150" height="84" alt="tumblr_70c85d03c386ae6e8cf1b52781c27c06_6303e1c9_250" src="https://github.com/user-attachments/assets/23afc549-3516-4287-ace9-64f2bd730da0" />
+![tumblr_15afa7c5981fb7631c5d5be7f13504ea_0ba4339c_100](https://github.com/user-attachments/assets/5419926d-5894-4611-b233-b257960402cf)
+<img width="99" height="56" alt="tumblr_570f81fb63f45605236f71ad43618215_872aa0fd_100" src="https://github.com/user-attachments/assets/0fc81a81-7831-4a49-904c-d9a152357110" />
+
+
+
 
 
 
@@ -177,6 +203,10 @@ I sit on PT mostly in Safe Server #2 and sometimes 18+, I don't like much sittin
 ![tumblr_d8591fce3cd8d59ab472e17314e8e338_f8b3b335_250](https://github.com/user-attachments/assets/c1d0514e-854b-4f91-89b1-76df713a87f0)
 ![tumblr_d057c2c6a0213122c0b9dbd63fd67e09_3539fd52_250](https://github.com/user-attachments/assets/fe9a2072-56e8-4f86-b673-d7a99517dfe1)
 ![tumblr_038bb3dd1c6454d8b17f4690058be877_056a040e_250](https://github.com/user-attachments/assets/5db6d2ff-85c0-43c9-9a72-90e214b2fb56)
+![tumblr_a3028226be3499ead005a5493b6067bb_716593c8_250](https://github.com/user-attachments/assets/a70992f7-9775-4f96-8730-4edfe9ff9f7d)
+![tumblr_02e0044115633a943c131abe95316ef5_438def93_250](https://github.com/user-attachments/assets/2123f577-f67f-4f14-81ca-ff8d8358bcb2)
+![tumblr_dba9442cd00a6daf83f86b5926e67390_821f66d6_100](https://github.com/user-attachments/assets/cc724516-8fb8-4232-b761-b45e0e0343ec)
+
 
 
 
@@ -190,6 +220,10 @@ I think that's all...I prob add something when I have free time or remember some
 
 
 ![tumblr_444e336c58f295647dc07fa173d0d60e_153ecb75_500](https://github.com/user-attachments/assets/71127ee2-64a0-4efd-a666-1413a6dc698f)
+
+
+<img width="256" height="256" alt="cover-1 thumb256" src="https://github.com/user-attachments/assets/8c8cc478-3522-4422-84c6-93c0bafcfb25" />
+
 
 
 ![tumblr_729aaa53b277efc2d157f48fdb8753db_5ac9ebcf_1280](https://github.com/user-attachments/assets/6aca1d1f-6285-4293-ab3f-6b9419b0eed0)
