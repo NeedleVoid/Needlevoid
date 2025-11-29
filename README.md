@@ -57,6 +57,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 - (IWC strangers who wants cuddles, ask me first about them because I'm not comfortable with it sometimes thx);
 - Ppl asking me if I'm single (I'm sitting alone, but I hate when people bother me about that, don't be a dickhead or just DNI);
 - Alfred's Playhouse fans [ew, it has fans??];
+- Foxe and almost all her friends;
 
 
 ![tumblr_fe7d44a6718240c2ae48f2d318ef0949_dd34ddc6_75](https://github.com/user-attachments/assets/d6977264-f32f-48f5-948d-6df53a140044) IWC:
