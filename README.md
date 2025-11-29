@@ -134,7 +134,7 @@ I sit on PT mostly in Safe Server #2 and sometimes 18+, I don't like much sittin
 
 
 
-![tumblr_bc3159b41bc1e95463d389b2a07e910e_b83cd958_75](https://github.com/user-attachments/assets/e57347ef-7c3c-4d87-bd81-dfd01f6b7c3e) Stamps and blinkies, that describes me I guess... ![tumblr_8276ada0ea8621675a8908755424336f_bf06e91d_75](https://github.com/user-attachments/assets/a729f8c5-9c06-48ec-a508-816d2f87f0d2)
+![tumblr_bc3159b41bc1e95463d389b2a07e910e_b83cd958_75](https://github.com/user-attachments/assets/e57347ef-7c3c-4d87-bd81-dfd01f6b7c3e) Stamps and blinkies collection... ![tumblr_8276ada0ea8621675a8908755424336f_bf06e91d_75](https://github.com/user-attachments/assets/a729f8c5-9c06-48ec-a508-816d2f87f0d2)
 
 
 
