@@ -7,6 +7,8 @@
 ![tumblr_3a1764a9ef1303400b633e5fc97969e3_8c901f17_400](https://github.com/user-attachments/assets/4110dcf5-e675-4ffc-9614-2bfacd282e69)
 
 
+<img width="128" height="128" alt="1-1 thumb128" src="https://github.com/user-attachments/assets/b7d1a7cf-d70f-4ddc-a713-d84367393e7a" />
+
 
 ⋆⭒˚.⋆ ![tumblr_1e3336fac593561cf2df26c030dc42dc_eea1ecad_75](https://github.com/user-attachments/assets/60ec0d4e-72df-44c5-a8a3-ba18b6a13ded) I'm Clover (or Soda if you like) and I'm sometimes playing PT. ![tumblr_3a5d19641ba69614ff2044e6607f6806_1c45c0f1_75](https://github.com/user-attachments/assets/057b277a-c6e2-49e5-9371-bb197d7eb6a6) ⋆⭒˚.⋆
 
