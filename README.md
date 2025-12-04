@@ -63,7 +63,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 - Ppl asking me if I'm single (I'm sitting alone, but I hate when people bother me about that, don't be a dickhead or just DNI);
 - Alfred's Playhouse fans [ew, it has fans??];
 - Foxe and almost all her friends;
-
+- People who start some drama and then tell me to shut up (like you first started bruh);
 
 
 <img width="128" height="128" alt="7-1 thumb128" src="https://github.com/user-attachments/assets/e545b74a-fada-421c-a2d2-f7da4a0a0998" />
