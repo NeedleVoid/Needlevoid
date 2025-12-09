@@ -101,7 +101,7 @@ Also whisper to me because I might be often offtab.Thx ![tumblr_c988561aea18a24f
 
 ☆ Pronouns: she/her, but he/him is fine too; ![tumblr_feb268cf229dc0df6c83c2582ddc32ca_100634cd_75](https://github.com/user-attachments/assets/83974e64-122f-46c0-9647-c231f7682f8f)
 
-☆ My favourite animals are birds, specifically I like crows, barn owls, common blackbirds and rooks; ![tumblr_7cf6b6bcb1cae8b73536d46a1f7f60cc_a6befc89_75](https://github.com/user-attachments/assets/d36a40bd-77fd-41f4-9101-055a24018ef9)
+☆ My favourite animals are birds, specifically I like crows, barn owls, common blackbirds, sparrows, crows and rooks; ![tumblr_7cf6b6bcb1cae8b73536d46a1f7f60cc_a6befc89_75](https://github.com/user-attachments/assets/d36a40bd-77fd-41f4-9101-055a24018ef9)
 
 ☆ Sayaka Miki and Manhattan Cafe (character, not irl horse) kin; ![tumblr_7bc47b498d72e9507eb75022f93cfd65_d9d21eb8_540](https://github.com/user-attachments/assets/030b8eae-88f3-4016-825f-b8f9cd260f5b)
 
